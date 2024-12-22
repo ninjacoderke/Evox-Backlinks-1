@@ -1,9 +1,3 @@
-<html>
-<head>
-<meta http-equiv="Content-Type" content="text/html; charset=windows-1252">
-<title>Premium IPTV Provider - EvoxIPTV.com</title>
-</head>
-
 <body>
 <a href='https://mediajx.com/story21158069/high-quality-iptv-subscriptions-free-trial-instant-access-multi-device-support-evox-iptv'>1 Year IPTV Subscription Vod</a>
 <a href='https://bookmark-dofollow.com/story21416867/high-quality-iptv-subscriptions-free-trial-instant-access-multi-device-support-evox-iptv'>10 Best IPTV</a>
@@ -8618,4 +8612,3 @@
 
 </body>
 
-</html>
